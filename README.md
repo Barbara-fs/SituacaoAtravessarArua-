@@ -1,0 +1,2 @@
+# SituacaoAtravessarArua-
+Situação Aprendizagem
